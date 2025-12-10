@@ -2,8 +2,3 @@
 
 ## I'm a beginner QA Engineer
 
-Latest YouTube Videos
-
-Languages and Tools
-
-Follow Me
